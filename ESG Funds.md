@@ -1,0 +1,1 @@
+[Largest ETFs](https://www.investopedia.com/news/look-largest-sustainable-investing-etf/) - "As of late 2022, the three largest ESG ETFs included iShares ESG Aware MSCI USA ETF (ESGU), iShares MSCI USA SRI UCITS ETF (SUAS), and iShares ESG Aware MSCI EAFE ETF (ESGD)."

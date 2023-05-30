@@ -1,0 +1,1 @@
+- [HBS article](https://hbr.org/2022/01/10-esg-questions-companies-need-to-answer)
