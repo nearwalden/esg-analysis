@@ -1,0 +1,3 @@
+- [Matt Levine - Everyone Wants to Do ESG Now](https://www.bloomberg.com/opinion/articles/2022-03-21/everyone-wants-to-do-esg-now?leadSource=uverify%20wall)
+- [WSJ on Vivek R](https://www.wsj.com/articles/the-anti-woke-presidential-candidate-who-wants-to-crush-esg-and-gut-the-fed-a486fdc)
+- 
